@@ -10,4 +10,5 @@ MOD FEATURES :
 - No April Fools songs
 
 [DISCORD](https://discord.gg/PXxXVvm4MU)
+
 [YOUTUBE CHANNEL](https://youtube.com/@DPGM?feature=shared)
