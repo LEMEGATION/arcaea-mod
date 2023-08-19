@@ -8,3 +8,5 @@ MOD FEATURES :
 - Unlock beyond difficulty
 - Play offline
 - No April Fools songs
+
+[DISCORD](https://discord.gg/PXxXVvm4MU)
